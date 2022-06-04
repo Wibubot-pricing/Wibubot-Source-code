@@ -17,6 +17,7 @@ This Script is for everyone, not for Sale. Jika dijual neraka menunggumu brother
 |[• WIBUSTORE](https://wibustore2.vercel.app)|
 |[• Zeeone ofc](https://github.com/zeeone-ofc)|
 |[• Nayla chan](https://github.com/Nayla-chan)|
+|[• BOTCAHX](https://github.com/BOTCAHX)|
 
 |Panduan|
 |-------|
